@@ -1,0 +1,3 @@
+Diretta Juventus-Atalanta ore 20.45: dove vederla in tv, in streaming e probabili formazioni
+I bianconeri ricevono i bergamaschi nel 28° turno del campionato di Serie A
+La sfida contro l'Atalanta può essere lo snodo definitivo nella stagione della Juve, ancora nel limbo tra il sogno scudetto e il timore di dover lottare per il quarto posto. Per Thiago Motta, però, non sono discorsi da fare: "La nostra filosofia non cambia, pensiamo solo ed esclusivamente alla prossima partita - ha detto l'allenatore bianconero alla vigilia del big-match contro i nerazzurri - anche perché dovremo dare il massimo, se non di più: all'andata facemmo una grande partita ma finì con un pareggio, basta questo per capire quanto serva per vincere".
