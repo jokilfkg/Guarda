@@ -1,3 +1,20 @@
-Diretta Lazio-Udinese ore 20.45: dove vederla in tv, in streaming e probabili formazioni
-I biancocelesti di Marco Baroni ospitano all'Olimpico i friulani di Kosta Runjaic nel posticipo della 28ª giornata del campionato di Serie A
-ROMA - A chiudere la 28ª giornata di Serie A sarà il posticipo in programma alle ore 20.45 allo stadio Olimpico di Roma tra Lazio e Udinese. I biancocelesti di Marco Baroni, reduci dal clamoroso successo in nove sul campo del Viktoria Plzen (2-1) nell'andata degli ottavi di finale di Europa League, in campionato hanno inanellato una striscia di cinque risultati utili consecutivi: dalla sconfitta interna contro la Fiorentina del 26 gennaio (1-2), sono arrivati i successi contro Cagliari (1-2) e Monza (5-1), il doppio pareggio contro il Napoli (2-2) e il Venezia (0-0) e infine la prestigiosa vittoria al Meazza contro il Milan (2-1), conquistata anch'essa negli istanti finali grazie al calcio di rigore dell'eterno Pedro. In mezzo l'eliminazione ai quarti di finale di Coppa Italia, proprio a San Siro ma contro l'Inter (2-0). Ottimo momento anche per i friulani di Kosta Runjaic, reduci da tre vittorie consecutive, quattro nelle ultime cinque. In questo parziale anche l'1-1 al Maradona contro il Napoli all'epoca capolista. Le ultime due affermazioni sono poi arrivate entrambe dal dischetto, con Lorenzo Lucca al Via del Mare di Lecce - rigore contestatissimo - (l'attaccante è poi stato subito sostituito per non aver rispettato l'ordine dei tiratori) e con Thauvin in casa contro il Parma. Furono proprio loro due, il 24 agosto, a regalare ai bianconeri il successo per 2-1 nella gara d'andata. Inutile la marcatura di Isaksen in pieno recupero. 
+Lazio affronterà Udinese il 10 mar 2025 alle 19:45 UTC allo Stadio Olimpico stadio, Rome città, Italy. La partita è di Serie A.
+Lazio ha giocato contro Udinese 1 partite in questa stagione. Al momento, Lazio è 5°, mentre Udinese è 10° in classifica. Stai cercando un confronto tra i migliori giocatori delle due squadre? Il sistema di valutazione di Sofascore assegna a ogni giocatore un rating specifico basato su numerosi fattori.
+Sul livescore di Sofascore puoi trovare tutti i risultati precedenti di Lazio contro Udinese selezionati tra tutti i loro H2H. Sofascore inoltre offre il miglior modo per seguire il risultato in diretta della partita grazie alle molteplici funzionalità. Tu puoi:
+Scopri in diretta chi ha segnato nella partita
+Ottieni informazioni in tempo reale su quale squadra sta dominando nella partita usando la funzionalità 'Attack Momentum'
+Segui le statistiche nei dettagli come possesso palla, tiri, calci d'angolo, grandi occasioni create, cartellini, passaggi chiave, duelli e molto altro
+Controlla tutti i testa a testa - per esempio, nell'ultima stagione Lazio e Udinese si sono affrontati 2 volte
+Segui sempre tutti le partite in casa e in trasferta di ogni squadra della Serie A
+Scopri cosa pensa la community di Sofascore su quale squadra è favorita a vincere questa partita.
+Tutte queste funzionalità possono aiutarti a decidere su come potrebbe andare la partita tra {homeTeamName} vs {awayTeamName}. Anche se Sofascore non offre direttamente la possibilità di scommettere, noi selezioniamo le migliori quote e ti mostriamo i migliori siti che offrono scommesse live. Le quote live di {streamSponsor} si possono vedere sulla sezione live score</sportlink> di Sofascore <sportlink>{sportName}.
+Dove posso guardare Lazio vs. Udinese? Nella sezione Canali TV puoi trovare la lista di tutti i canali che trasmettono in diretta Lazio – Udinese. Potresti trovare la partita in diretta streaming nei nostri siti di scommesse partner o cliccando nei link legali offerti direttamente da Sofascore.
+Dettagli eventi:
+NOME: Lazio - Udinese
+DATA: 10 mar 2025
+TEMPO: 19:45 UTC
+SEDE: Stadio Olimpico, Rome, Italy
+Maggiori dettagli:
+Lazio risultati in diretta, programmi e punteggi
+Udinese risultati in diretta, programmi e punteggi
+Sofascore livescore è disponibile come app per iPhone e iPad, Android e Windows Phone. Potete trovarli in tutti gli store nelle diverse lingue come "Sofascore". Installa l'app Sofascore e segui in diretta Lazio Udinese sul tuo dispositivo mobile!
