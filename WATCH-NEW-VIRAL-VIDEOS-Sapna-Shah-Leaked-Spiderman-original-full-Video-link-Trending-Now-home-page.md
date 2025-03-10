@@ -1,19 +1,18 @@
-Bbyanni Leak: The Impact On Social Media
-The video, which was circulated without her consent, quickly gained traction on social media platforms, 
-‘Unke gaane gaake humari life chal rahi hai’: Chaiyya Chaiyya singer Sapna Awasthi says Shah Rukh Khan brought her luck
-Sapna Awasthi expressed gratitude to AR Rahman, Gulzar and Shah Rukh Khan, Malaika Arora for the 
-Sapna Choudhary Welcomes Baby Boy With Husband Veer Sahu
-Reportedly, singer Babu Maan was invited on stage to reveal the name of the newborn baby, and announced 
-Dehradun school’s farewell party breaks the Internet; students’ performance on ‘Aankhein Khuli’ leaves everyone in awe
-A farewell party held at Dehradun Public School has turned into a viral sensation owing to a dance 
-"Tere Baap Ka…" SRK Loses Cool on Son Aryan Khan for Repeatedly Interrupting Him in His Upcoming Series, Video Viral
-Shah Rukh Khan's Angry Reaction Viral On Son Aryan Khan: Bollywood King Shah Rukh Khan's children 
-Haryanvi Sensation Sapna Choudhary Gives Birth to Second Son, Must Watch Video
-Shah Rukh Khan's Chaiyya Chaiyya Amps Up Pakistani Wedding; Men In Black Suits Steal The Show In Viral Video
-A wedding in Pakistan turned energetic after guests set an energetic dance performance. They grooved to 
-Did Neil Nitin Mukesh REALLY Ask Shah Rukh Khan To 'Shut Up'? New York Actor Clarifies
-Neil Nitin Mukesh has clarified a viral 2009 Filmfare Awards clip where he seemingly told Shah Rukh 
-Haryanvi Sizzler Sapna Choudhary Flaunts Her Sexy Thumkas on Bol Tere Mithe Mithe in This Video - Watch
-Sapna is seen performing on stage on popular Haryanvi song Bol Tere Mithe Mithe. Dressed on blue 
-Sapna Choudhary Welcomes Second Baby Boy, Son Named 'Shahveer' in Grand Ceremony
-Sapna Choudhary's Second Child Born: There is an atmosphere of happiness again in the house of 
+
+apna Choudhary Welcomes Baby Boy With Husband Veer Sahu
+Published By :
+Reportedly, singer Babu Maan was invited on stage to reveal the name of the newborn baby, and announced ‘Shah Veer’.
+Popular Haryanvi singer and dancer Sapna Choudhary is celebrating the birth of her second child, a baby boy with her husband Veer Sahu. The star hosted a grand ‘Namkaran ceremony’ on November 11, which was attended by several celebrities, fans, and social media influencers. Reportedly, singer Babu Maan was invited on stage to reveal the name of the newborn baby, and announced ‘Shah Veer’.
+
+The video of the same went viral on social media, featuring a huge crowd gathered to celebrate the occasion. In the clip, Babu Maan could be heard announcing the name. He said, “Veer Sahu has become the father of another son. They have named him Shah Veer."
+
+related stories
+Soha Ali Khan and Kunal Kemmu’s Maldivian Getaway At Luxurious Resort Is All Love
+Soha Ali Khan and Kunal Kemmu’s Maldivian Getaway At Luxurious Resort Is All Love
+When Aishwarya Rai Opened Up About Her Roka With Abhishek Bachchan: 'He Proposed, But You Still...'
+When Aishwarya Rai Opened Up About Her Roka With Abhishek Bachchan: 'He Proposed, But You Still...'
+Sonnalli Seygall’s Morning Routine Includes Waking Husband Up Against His Wish
+Sonnalli Seygall’s Morning Routine Includes Waking Husband Up Against His Wish
+US Man Throws 8-Month-Old Son Against Wall After Losing In Video Game: Report
+US Man Throws 8-Month-Old Son Against Wall After Losing In Video Game: Report
+Several pictures and videos from the ceremony have surfaced on social media. Sapna Choudhary’s Bigg Boss co-contestant, Mehjabi Siddiqui, also attended the function. The actress shared a video of their meeting on Instagram. In the clip, they were seen greeting each other while sharing a warm hug.
